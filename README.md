@@ -2,7 +2,7 @@
 - 👀 I’m interested in Learning New Things
 - 🌱 I’m currently learning FULL STACK DEVELOPER - JAVASCRIPT
 - 💞️ I’m looking to collaborate on JAVA SCRIPT
-- 📫 How to reach me 
+- 📫 How to reach me through Mobile 9885959360
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
